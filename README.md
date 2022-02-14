@@ -15,6 +15,6 @@
 
 [如网站被屏蔽，请下载chrome浏览器](https://8xe23.com/chrome_93.0.4577.82.apk)
 
-看片邮箱找回：如果以上地址均不可用，索取最新地址,请发邮件到 [savecm121@gmail.com](mailto:randallbear46@gmail.com)
+看片邮箱找回：如果以上地址均不可用，索取最新地址,请发邮件到 [randallbear46@gmail.com](mailto:randallbear46@gmail.com)
 
 喜欢的狼友 请顺手star一下
